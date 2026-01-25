@@ -10,5 +10,5 @@ or adam<br>ships iwc  ﹏ c+h ok
 </p>
 
 <p align="center">
-<a href="https://mafioso.atabook.org/">ata</a>  <a href="https://rentry.co/finalshot">rentry</a>  rmking
+<a href="https://mafioso.atabook.org/">ata</a>  <a href="https://rentry.co/forsaken">rentry</a>  rmking
 </p>
